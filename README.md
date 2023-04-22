@@ -1,1 +1,1 @@
-[my socials](https://Toon-arch.github.io)
+[my socials](https://Toon-arch.github.io/socials)
